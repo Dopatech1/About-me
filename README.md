@@ -1,2 +1,2 @@
 # About-me
-I'm a person who does strange things :)
+👋 Hey I'm a 14 year old who can do a little bit of little bit :)
